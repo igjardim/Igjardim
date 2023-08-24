@@ -1,7 +1,7 @@
 ## Hello! Eu Sou Iglezio Jardim👋
 ## ♿ PCD
-##✍️ Estudante de Marketing
-##🧑‍💼Assistente Administrativo
+## ✍️ Estudante de Marketing
+## 🧑‍💼Assistente Administrativo
 ## 🚀 Mudando para Novos mundos
 ## 🌱 Contribuindo para melhorar  acessibilidade.
 ## 🔗 Mais sobre mim:<br/>
